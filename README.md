@@ -1,2 +1,2 @@
 # Algebra-Lessons
-Luv u Alyssa.
+Luv u Alyssa
